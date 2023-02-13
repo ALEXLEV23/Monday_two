@@ -15,4 +15,4 @@
 
 #### Зацениете фото
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.kommersant.ru%2Fdoc%2F3651318&psig=AOvVaw0GUp0vWdb5rEpIw1hGKR3P&ust=1676399956080000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCOCLq9CSk_0CFQAAAAAdAAAAABAE)
+![](https://klike.net/uploads/posts/2019-03/1551427572_1.jpeg)
